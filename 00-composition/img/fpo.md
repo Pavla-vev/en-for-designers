@@ -10,8 +10,7 @@ The height the rectangles is different. They are everly spaced.
 The space is between about 0,5 cm.
 
 ## Step 1
-
-- The first is the some as the second by the top of the rectangle is on the some line as the top of the first are. And is about 4 cm.
+he first is the some as the second by the top of the rectangle is on the some line as the top of the first are. And is about 4 cm.
 ## Step 2
 - The second is tallen. The bottom of the first and second rectangles are on the same line. It is cca 7 cm tall.
 ## Step 3
@@ -25,3 +24,4 @@ The space is between about 0,5 cm.
 - All the rectangles are white with black outline. Only the fourth one is black
 
 ![Composition 4](https://jgagne.github.io/ajovt3-zs21-vskk/img/00-composition/04-comp.png)
+
