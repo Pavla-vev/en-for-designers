@@ -9,6 +9,6 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 ---
 **Alt text:** Vegetables party. 
 ![image](Ilustrace.png)
-**Alt text:** Cosmic touch. 
 
+**Alt text:** Cosmic touch. 
 ![image](vesmír 8.png)
