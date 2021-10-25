@@ -16,7 +16,7 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 2. - Oil painting in free time.
 ---
 **Alt text:** Thailand 
-![image](oil 2.pdf)
+![image](oil 1.jpg)
 
 3. - Logo used in Mock up
 ---
