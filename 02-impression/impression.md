@@ -13,7 +13,7 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 **Alt text:** Cosmic touch. 
 ![image](vesmír 8.png)
 
-2. - Illustration created in application Procreate.
+2. - Oil painting 
 ---
-**Alt text:** Vegetables party. 
+**Alt text:** Thailand 
 ![image](Ilustrace.png)
