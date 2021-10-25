@@ -13,7 +13,11 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 **Alt text:** Cosmic touch. 
 ![image](vesmír 8.png)
 
-2. - Oil painting 
+2. - Oil painting in free time.
 ---
 **Alt text:** Thailand 
 ![image](oil 1.pdf)
+
+3. - Logo used in Mock up
+---
+![image](img/3.jpg)
