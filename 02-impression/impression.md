@@ -20,4 +20,4 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 
 3. - Logo used in Mock up
 ---
-![image](img/3.jpg)
+![image](ODZNAK.jpg)
