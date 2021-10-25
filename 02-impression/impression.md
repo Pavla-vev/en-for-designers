@@ -22,3 +22,4 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 ---
 ![image](ODZNAK.jpg)
 ![image](samolepky.png)
+
