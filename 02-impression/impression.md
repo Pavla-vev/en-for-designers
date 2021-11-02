@@ -14,7 +14,7 @@ My name is Pavla Veverková and Im graphic designer. In my free time, I like to 
 ---
 
 **Alt text:** Thailand 
-![image](oil 1m.png)
+![image](olej.png)
 
 
 3. - Logo used in Mock up
