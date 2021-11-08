@@ -2,7 +2,7 @@
 
 # Logo for e-shop with bio product called Kůlna
 
-![image](LOGO KŮLNA BEDNA.png)
+![image](negative.png)
 
 ## Description
 I created the logo and logo manual for a new start-up with bio products and home-made decoration. 
