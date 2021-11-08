@@ -13,7 +13,7 @@ Graphic designer...Wow!
 It sounds so nobly right? 
 When I go with someone out a tell him, what I do, he is surprised. 
 
-Plus this job is about creativity, creating something from nothing, getting jokes and nice visuals to the world, it is a very fanny and inspired job.
+This job is about creativity, creating something from nothing, getting jokes and nice visuals to the world, it is a very fanny and inspired job.
 
 ## My Story
 
