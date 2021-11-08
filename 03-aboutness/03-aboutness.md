@@ -2,7 +2,7 @@
 HEY! ARE YOU HERE? LISTEN! 
 If you want...of course 🦖
 
-![image](PAJA FOTO.jpg)
+![image](fotka.png)
 
 ## About Me
 When I was little
