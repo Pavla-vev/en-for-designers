@@ -1,5 +1,5 @@
 ## Brief
 
-# Logo for e-hop with bio product Kůlna
+# Logo for e-shop with bio product called Kůlna
 
 ![image](samolepky.png)
