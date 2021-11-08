@@ -15,4 +15,9 @@ I choose a variety of colours fresh vegetables and a dark contrast box. The next
 
 ![image](samolepky.png)
 
+##Problem
+Comes COVID-19 and nobody knows, what is it and how long will be there... So they end this startup and after saying that they had no money for my job. That wasn't nice...
+
+This experience gets me to work on my portfolio and avoid for my next job "say about backup". 
+
 ![image](trika.png)
