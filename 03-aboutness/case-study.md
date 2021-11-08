@@ -14,3 +14,5 @@ For the logo and manual, I have five days. My client wants something basic, funn
 I choose a variety of colours fresh vegetables and a dark contrast box. The next step was to make a manual for them.  Project Kůlna - how to work with logo ( no deform, size, symbol), which colours use, how logo gets to clothes, etc.
 
 ![image](samolepky.png)
+
+![image](trika.png)
