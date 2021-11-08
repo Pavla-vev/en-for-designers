@@ -25,6 +25,7 @@ If you are interested in and want you to see my work...
 
 Here is it
 
+- [View Selected Case Study](case-study.md)
 
 
 
