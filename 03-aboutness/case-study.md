@@ -6,6 +6,7 @@
 
 ## Description
 I created the logo and logo manual for a new start-up with bio products and home-made decoration. 
+![image](barvy.png)
 
 ## Action
 For the logo and manual, I have five days. My client wants something basic, funny, and mainly with vegetables.  Ok, let's do it! 
