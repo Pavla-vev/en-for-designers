@@ -25,3 +25,4 @@ This experience gets me to work on my portfolio and avoid for my next job "say a
 ![image](trika.png)
 
 ![image](1.png)
+![image](2.png)
