@@ -23,3 +23,5 @@ Comes COVID-19 and nobody knows, what is it and how long will be there... So the
 This experience gets me to work on my portfolio and avoid for my next job "say about backup". 
 
 ![image](trika.png)
+
+![image](1.png)
