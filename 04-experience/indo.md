@@ -1,8 +1,9 @@
-# Pavla Veverková
+# Pavla Veverková 👩
 
 # Summary
 
-I am a freelance Graphic Designer. I am specializing in creativity,illustration, logos, and visual identity.
+I am a freelance Graphic Designer. 
+I am specializing in creativity,illustration, logos, and visual identity.
 
 –
 
@@ -17,7 +18,7 @@ Email: veverkova111@seznam.cz
 # Experience
 
 ## Social media manager/Graphic designer - 08/2021 - now
-creation of graphic content for social media/ Instagram and Facebook/ creating post, poster, marketing
+creation of graphic content for social media/ Instagram and Facebook/ creating post, poster, marketing, videos.
 
 ## Freelance Graphic Designer - 08/2019 - now
 print/creating online banners, posts, presentations, posters, business cards/ marketing
@@ -50,7 +51,7 @@ DUKE Náhorní, Prague, Kobylisy – Graphic Design - September 2015 - June 2019
 
 MacOS, MS Windows
 Adobe Creative Cloud - Illustrator,InDesign, Lightroom, Photoshop
-Facebook / Instagram - Stories, posts, cover photos, profile photos.
+Facebook / Instagram - Stories, posts, cover photos, profile photos,Insta stories.
 Microsoft Word / PowerPoint / Excel
 Github
 Figma
