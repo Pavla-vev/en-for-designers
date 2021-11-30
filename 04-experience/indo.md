@@ -16,28 +16,28 @@ Email: veverkova111@seznam.cz
 
 # Experience
 
-##Social media manager/graphic - 08/2021 - now
+## Social media manager/graphic - 08/2021 - now
 creation of graphic content for social media/ Instagram and Facebook
 
-##Freelance Graphic Designer - 08/2019 - now
+## Freelance Graphic Designer - 08/2019 - now
 print/creating online banners, posts, presentations, posters, business cards/ marketing
 
-##Receptionist - MEDIACOM S.R.O. - 07/2019 - 03/2020
+## Receptionist - MEDIACOM S.R.O. - 07/2019 - 03/2020
 communication with clients/ administration
 
-##Receptionist - FIT PRO ŘÍČANY - 10/2018 - 06/2019
+## Receptionist - FIT PRO ŘÍČANY - 10/2018 - 06/2019
 reservation/bar and fitness service/ communication with clients
 
-##International and national dispatcher - ASKENT INTERNATIONAL S.R.O. 07/2018 - 09/2018
+## International and national dispatcher - ASKENT INTERNATIONAL S.R.O. 07/2018 - 09/2018
 planning, registration and organization of transport/ communication with clients and drivers
 
-##Barmaid - CINEMA CITY - 03/2018 - 06/2018
+## Barmaid - CINEMA CITY - 03/2018 - 06/2018
 customer service/sale of food products
 
-##Graphic - ACRODESIGN S.R.O. - 04/2018 - 05/2018
+## Graphic - ACRODESIGN S.R.O. - 04/2018 - 05/2018
 product arranging/print design/photography
 
-##Artist - ALMAPAP - 04/2018 - 03/2017
+## Artist - ALMAPAP - 04/2018 - 03/2017
 production of promotional products/creative/work in stock
 
 # Education
