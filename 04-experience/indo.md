@@ -16,8 +16,8 @@ Email: veverkova111@seznam.cz
 
 # Experience
 
-## Social media manager/graphic - 08/2021 - now
-creation of graphic content for social media/ Instagram and Facebook
+## Social media manager/Graphic designer - 08/2021 - now
+creation of graphic content for social media/ Instagram and Facebook/ creating post, poster, marketing
 
 ## Freelance Graphic Designer - 08/2019 - now
 print/creating online banners, posts, presentations, posters, business cards/ marketing
