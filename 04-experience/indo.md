@@ -56,4 +56,4 @@ Microsoft Word / PowerPoint / Excel
 Github
 Figma
 Cinema 4D
-Oil painting
+Procreate
