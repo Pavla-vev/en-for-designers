@@ -14,8 +14,7 @@ Email: veverkova111@seznam.cz
 
 –
 
-
-#Experience
+# Experience
 
 ##Social media manager/graphic - 08/2021 - now
 creation of graphic content for social media/ Instagram and Facebook
@@ -41,13 +40,13 @@ product arranging/print design/photography
 ##Artist - ALMAPAP - 04/2018 - 03/2017
 production of promotional products/creative/work in stock
 
-#Education
+# Education
 
 The University of Creative Communication, Prague, Pražského povstání – Graphic and Media Design - September 2019 - current
 
 DUKE Náhorní, Prague, Kobylisy – Graphic Design - September 2015 - June 2019
 
-#Skills and interests
+# Skills and interests
 
 MacOS, MS Windows
 Adobe Creative Cloud - Illustrator,InDesign, Lightroom, Photoshop
