@@ -17,7 +17,7 @@ Email: veverkova111@seznam.cz
 
 # Experience
 
-## Social media manager/Graphic designer - 08/2021 - now
+## Social media manager/Graphic designer - SQUASHPOINT - 08/2021 - now
 creation of graphic content for social media/ Instagram and Facebook/ creating post, poster, marketing, videos.
 
 ## Freelance Graphic Designer - 08/2019 - now
