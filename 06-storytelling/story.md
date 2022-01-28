@@ -2,6 +2,7 @@ by Pavla Veverková
 
 
 ## Why do you love what you do?
+I love the feeling when I start with idea in my head create and after I have project before me. My ideas happens reality.
 
 ## What do you believe in? What’s your design philosophy?
 I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong.
