@@ -21,4 +21,4 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 
 
 ## When was that aha moment?
-That aha moment came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy.
+That aha moment came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. So thank you mum❤️
