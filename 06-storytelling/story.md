@@ -21,3 +21,4 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 
 
 ## When was that aha moment?
+That aha moment came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing.
