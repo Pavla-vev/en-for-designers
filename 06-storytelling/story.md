@@ -2,6 +2,8 @@ by Pavla Veverková
 
 <!--
 
+## Why do you love what you do?
+
 Consider this structure as guidance only:
 
 1. An introduction, give personal context, and make the reason for the title clear
