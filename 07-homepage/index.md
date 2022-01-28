@@ -1,7 +1,7 @@
 # Pavla Veverková 
 
 ## About me
-- [About me](https://github.com/Quidoo/english_for_designers/blob/main/03-aboutness/index.md)
+- [About me](https://github.com/Pavla-vev/en-for-designers/blob/main/03-aboutness/03-aboutness.md)
 - [View my CV](https://github.com/Pavla-vev/en-for-designers/blob/main/04-experience/indo.md)
 
 
