@@ -19,10 +19,4 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 - [see for yourself](https://www.instagram.com/jude_devir/?hl=cs)
 
 
-#### Link
-
-<!-- Links to preparatory content: mind map, sketches, notes, etc. -->
-
-- […](…)
-
 ## When was that aha moment?
