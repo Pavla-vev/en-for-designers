@@ -4,6 +4,7 @@ by Pavla Veverková
 ## Why do you love what you do?
 
 ## What do you believe in? What’s your design philosophy?
+I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong.
 
 ## Who inspired/inspires you?  Where does your inspiration come from? 
 I don't know if it's possible to say who inspires me, because on Facebook groups, Instagram, Pinterest, ... is many wonderfuless arts. Maybe i have some favorite artist, who I check more time on social media.
