@@ -9,9 +9,8 @@ by Pavla Veverková
 
 ## Where does your inspiration come from? 
 
-About the designer…
 
-### Link
+#### Link
 
 <!-- Links to preparatory content: mind map, sketches, notes, etc. -->
 
