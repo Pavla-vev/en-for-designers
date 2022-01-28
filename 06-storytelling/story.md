@@ -17,7 +17,7 @@ Dinara is Pastry chef (Pastry and baking arts is more about desserts.) She studi
 ### Jude Devir 
 Jude is artist, who is famous for his private illustrated life. I like his illustration style and how is incredible how shows as that we have same problems as anybody...
 
-- [see for yourself](https://www.instagram.com/jude_devir/?hl=cs)
+- [See for yourself](https://www.instagram.com/jude_devir/?hl=cs)
 
 
 ## When was that aha moment?
