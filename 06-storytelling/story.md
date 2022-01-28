@@ -13,6 +13,12 @@ Dinara is Pastry chef (Pastry and baking arts is more about desserts.) She studi
 
 - [Show me Pastry art!](https://dinarakasko.com/category/video/)
 
+### Jude Devir 
+
+
+- [see for yourself](https://www.instagram.com/jude_devir/?hl=cs)
+
+
 #### Link
 
 <!-- Links to preparatory content: mind map, sketches, notes, etc. -->
