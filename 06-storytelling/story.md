@@ -1,7 +1,7 @@
 # Storytelling✏️
 
 ## Once upon a time...
-I love the feeling when I start with idea in my head create and after I have project before me. My ideas happens reality.
+My journey came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. So thank you mum❤️
 
 ## What do you believe in? What’s your design philosophy?✨
 I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong. Everything must have a reason.
@@ -20,5 +20,4 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 - [See for yourself](https://www.instagram.com/jude_devir/?hl=cs)
 
 
-## When was that aha moment?
-That aha moment came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. So thank you mum❤️
+
