@@ -35,5 +35,7 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 
 ![zjhzhzbtzb](https://user-images.githubusercontent.com/79570995/156086459-098d337a-2f1d-45d2-9fba-695561eb1077.jpg)
 
+I am here right now. I study and work what I enjoy!
+
 So thank you mum ❤️
 
