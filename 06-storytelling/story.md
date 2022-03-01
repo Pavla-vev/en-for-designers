@@ -19,6 +19,8 @@ I have been doing this sport since I was 16 years old. It's relaxation, work, fu
 
 ![SDFVRGRTvf](https://user-images.githubusercontent.com/79570995/156080036-6c6af7d2-298e-4e1e-871a-557d905b8d6e.jpg)
 
+But when we talk about inspirational people...
+
 
 I don't know if it's possible to say who inspires me, because on Facebook groups, Instagram, Pinterest, ... is many wonderfuless arts. Maybe i have some favorite artist, who I check more time on social media.
 
