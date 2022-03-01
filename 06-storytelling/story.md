@@ -3,7 +3,7 @@
 ## Once upon a time...
 My journey came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. 
 
-![image](olej.png)
+
 
 ## What do you believe in? What’s your design philosophy?✨
 I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong. Everything must have a reason.
