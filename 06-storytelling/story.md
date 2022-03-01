@@ -6,9 +6,12 @@ My journey came when my mother bought a painting book for beginners. I was fasci
 ## What do you believe in? What’s your design philosophy?✨
 I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong. Everything must have a reason.
 
+I have been doing this sport since I was 16 years old. It's relaxation, work, fun and inspiration!
+
+
 ![SDFVRGRTvf](https://user-images.githubusercontent.com/79570995/156080036-6c6af7d2-298e-4e1e-871a-557d905b8d6e.jpg)
 
-## Who inspired/inspires you?  Where does your inspiration come from? 🔍
+
 I don't know if it's possible to say who inspires me, because on Facebook groups, Instagram, Pinterest, ... is many wonderfuless arts. Maybe i have some favorite artist, who I check more time on social media.
 
 ### Dinara Kasko 
