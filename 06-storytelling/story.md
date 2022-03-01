@@ -11,9 +11,10 @@ I met my passion for design in high school, where I found out what I would like 
 ![gfzvuvbu](https://user-images.githubusercontent.com/79570995/156082608-f0004054-fce2-4d53-97b7-9f68a9cd186a.jpg)
 
 
-I have been doing this sport since I was 16 years old. It's relaxation, work, fun and inspiration!
-
 I work in a sports center, where I am a graphic designer and a bit of a marketing specialist. My work is - posters, posts on social networks, stickers, event planning, promotion, ...
+
+I love this place! Creative work is connected with my second job as a jumping coach!
+I have been doing this sport since I was 16 years old. It's relaxation, work, fun and inspiration!
 
 
 ![SDFVRGRTvf](https://user-images.githubusercontent.com/79570995/156080036-6c6af7d2-298e-4e1e-871a-557d905b8d6e.jpg)
