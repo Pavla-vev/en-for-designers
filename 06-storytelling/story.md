@@ -10,11 +10,10 @@ I met my passion for design in high school, where I found out what I would like 
 
 ![gfzvuvbu](https://user-images.githubusercontent.com/79570995/156082608-f0004054-fce2-4d53-97b7-9f68a9cd186a.jpg)
 
-## What do you believe in? What’s your design philosophy?✨
-I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong. Everything must have a reason.
-
 
 I have been doing this sport since I was 16 years old. It's relaxation, work, fun and inspiration!
+
+I work in a sports center, where I am a graphic designer and a bit of a marketing specialist. My work is - posters, posts on social networks, stickers, event planning, promotion, ...
 
 
 ![SDFVRGRTvf](https://user-images.githubusercontent.com/79570995/156080036-6c6af7d2-298e-4e1e-871a-557d905b8d6e.jpg)
