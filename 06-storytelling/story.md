@@ -4,7 +4,7 @@
 My journey came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction.
 
 ## First step
-After a painting course, where I had figural drawing for the first time ... (interesting experience) I started studying at the DUKE art high school - design and art, book culture, and economics in Náhorní.I learned to work with watercolors, acryls and oil painting.
+After a painting course, where I had figural drawing for the first time ... (interesting experience) I started studying at the DUKE art high school - design and art, book culture, and economics in Náhorní. I learned to work with watercolors, acryls and oil painting.
 
 I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. 
 
