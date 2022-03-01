@@ -10,8 +10,6 @@ I met my passion for design in high school, where I found out what I would like 
 
 ![gfzvuvbu](https://user-images.githubusercontent.com/79570995/156082608-f0004054-fce2-4d53-97b7-9f68a9cd186a.jpg)
 
-![zjhzhzbtzb](https://user-images.githubusercontent.com/79570995/156086459-098d337a-2f1d-45d2-9fba-695561eb1077.jpg)
-
 ## What do you believe in? What’s your design philosophy?✨
 I think that every logo, visual identity or other design must have story - What mean this? Why you did it ? This questions must be answer. I believe in simple and clear design. The hardest from this creative process is do original and clear symbol (for example logo) - When is it nice symbol without idea or meaning, so it wrong. Everything must have a reason.
 
@@ -33,7 +31,7 @@ Jude is artist, who is famous for his private illustrated life. I like his illus
 
 - [See for yourself](https://www.instagram.com/jude_devir/?hl=cs)
 
-
+![zjhzhzbtzb](https://user-images.githubusercontent.com/79570995/156086459-098d337a-2f1d-45d2-9fba-695561eb1077.jpg)
 
 So thank you mum ❤️
 
