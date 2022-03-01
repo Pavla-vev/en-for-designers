@@ -1,7 +1,11 @@
 # Storytelling✏️
 
 ## Once upon a time...
-My journey came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction. I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. 
+My journey came when my mother bought a painting book for beginners. I was fascinated by how someone could create such a beautiful thing out of nothing. After several months, when the rest of the family lost interest in the book, I persevered and began to develop in an artistic direction.
+
+## First step
+
+I met my passion for design in high school, where I found out what I would like to do in life and what I really enjoy. 
 
 ![gfzvuvbu](https://user-images.githubusercontent.com/79570995/156082608-f0004054-fce2-4d53-97b7-9f68a9cd186a.jpg)
 
