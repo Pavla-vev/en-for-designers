@@ -21,7 +21,6 @@ It's a new project,so I have to do:
 
 ### How successful where you in solving the problem?
 
-## Inspiration
 ## Keywords 
 analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
