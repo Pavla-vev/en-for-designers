@@ -23,6 +23,8 @@ I went to the building and took some photos.For a few months, I conducted a thor
 
 ### How successful where you in solving the problem?
 
+I think that thanks to this startap, there will be more visitors to the town of Chřibská and the natural monuments in the area. And the dilapidated historical monument of the 19th century will be saved.
+
 ## Keywords 
 analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
