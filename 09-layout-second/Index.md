@@ -38,6 +38,11 @@ It symbolizes tenderness, peace,loyalty, trust,devotion and tradition
 
 ## Slogan
 
+The principle of communication will be about mental and physical regeneration, which will be provided by our accommodation.
+
+Vaše cesta za obnovou - Your way to recovery.
+První krok k Vaší obnově - The first step to your recovery.
+
 ## Prints
 ![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162840988-a11b8dca-f009-45bf-a6ab-2bf2f03b95e6.jpg)
 
