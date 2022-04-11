@@ -35,6 +35,9 @@ It symbolizes tenderness, peace,loyalty, trust,devotion and tradition
 
 ![razitko znaku](https://user-images.githubusercontent.com/79570995/162841590-f9c90c92-09c8-438e-8b40-4db2b3108c61.jpg)
 
+## Elements of visual identity
+
+![Vizuální identita vzor](https://user-images.githubusercontent.com/79570995/162845557-a9979fa9-4191-410a-9c7d-8d96903be8f9.jpg)
 
 ## Slogan
 
