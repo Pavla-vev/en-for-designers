@@ -23,7 +23,7 @@ It's a new project,so I have to do:
 
 ## Inspiration
 ## Keywords 
-analysis, Logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
+analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
 ## Key points
 ## Warm-up
