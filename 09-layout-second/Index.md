@@ -15,6 +15,8 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 
 ## Logo
+The combination of serif and sans-serif fonts in the logo carries the connection between the long history of the hotel and the overlap into modern times. The name of the hotel in the serif font symbolizes its history, while the slogan in the new sans serif font touches on current trends in typography.
+
 ![přední strana vizitky kopie](https://user-images.githubusercontent.com/79570995/162841480-cf6d25b4-84b2-482e-8489-931fb87554bb.jpg)
 
 ## Symbol
