@@ -19,6 +19,8 @@ It's a new project,so I have to do:
 
 ### What actions did you take to this project?
 
+I went to the building and took some photos.For a few months, I conducted a thorough analysis of the competition and surveys - history, location, advantages and disadvantages.
+
 ### How successful where you in solving the problem?
 
 ## Keywords 
