@@ -50,3 +50,7 @@ První krok k Vaší obnově - The first step to your recovery.
 ## Incrustation
 ![Polstare chribska](https://user-images.githubusercontent.com/79570995/162841381-f4cf3dff-138a-4699-877e-b1eca37d482a.jpg)
 
+## Pictograms
+
+![Piktogramy chřibská (1)](https://user-images.githubusercontent.com/79570995/162845314-7bdd2880-94ea-41a6-92ea-e38b144c3bab.jpg)
+
