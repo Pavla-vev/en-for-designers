@@ -1,5 +1,7 @@
 # Thesis Digest: Logo visual identity and marketing communication to the guast-house
 
+## Running Title: Unified visual identity
+
 Autor: Pavla Veverková
 
 E-mail(s): veverkova111@seznam.cz
@@ -11,4 +13,6 @@ Roubíček for his great help, a lot of time, support and valuable advice he gav
 Data Accessibility/Availability Statement: There is no data archived.
 
 Word count: 
+
+
 
