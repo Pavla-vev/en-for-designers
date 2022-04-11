@@ -40,6 +40,12 @@ The combination of serif and sans-serif fonts in the logo carries the connection
 
 ### Symbol
 
+1. Inspiration from the entrance door portal
+2. Combination of serif and sans serif font. (combined history and modernity)
+3. Contains the initial names pension Renaissance
+4. Same number of letters R (4x) same number of family members (4x)
+5. Color (blue)💙 It symbolizes tenderness, peace,loyalty, trust,devotion and tradition
+
 ![razitko znaku](https://user-images.githubusercontent.com/79570995/162849081-15007353-1d7e-4aba-9aeb-50424115b676.jpg)
 
 
