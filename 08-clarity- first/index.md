@@ -39,4 +39,4 @@ I will create a new and original visual and marketing communication. I will help
 The project is still ongoing. It is in the phase of complete reconstruction of the building. The success would be to help the mother with her start-up and create a functioning business
 ## Warm-up
 # Problem
-Currently the project does not exist, due to covid-19, suspended reconstruction. All visuals and communication must be done
+Currently the project does not exist, due to Covid-19, suspended reconstruction. All visuals and communication must be done
