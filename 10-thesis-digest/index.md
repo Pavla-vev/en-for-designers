@@ -18,6 +18,8 @@ Word count:
 
 analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
+## Main Text
+
 ## References
 1.	METZ, Reinhold, GRUNER, Hermann, KESSLER Thomas. Restaurace a host – Základní odborné vědomosti restaurace,hotel,kuchyně. Praha: SOBOTÁLES, 2008.
 2.	KOTLER, Philip a KELLER, Kevin Lane. Marketing managemen. [4.vyd.]. Přeložil JUPPA, Tomáš, přeložil MACHEK, Martin. Praha: Grada, 2013. ISBN 978-80-247-4150-5. 
