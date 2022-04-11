@@ -8,8 +8,7 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 ## Presentation
 
-![barvy](https://user-images.githubusercontent.com/79570995/162842679-a858fc29-fcf6-4a20-a832-ceb70c3dc711.jpg)
-
+![barevnots](https://user-images.githubusercontent.com/79570995/162843336-72569a2d-8b13-47db-909d-32d62d36d470.jpg)
 
 
 ## Logo
