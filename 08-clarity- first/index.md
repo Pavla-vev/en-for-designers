@@ -34,5 +34,6 @@ I want to create a different accommodation facility for this location, which wou
 #### Research — design/methodology/approach including procedures/data/observations: 
 Thanks to the new project, I have the opportunity to work with an architect who will provide me with drawings of the house. I have to focus on the competition (how it works with social networks, websites and communication with clients).
 #### Findings (highlight outcome of research): 
+I will create a new and original visual and marketing communication. I will help save the dilapidated historical monument.
 #### Conclusions (significance/success of study to theory/practical/society): 
 ## Warm-up
