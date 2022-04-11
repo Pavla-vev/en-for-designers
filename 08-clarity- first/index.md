@@ -46,7 +46,7 @@ The project is still ongoing. It is in the phase of complete reconstruction of t
 ▪️Search for similar local and foreign companies.
 ▪️Creating a new visual and communication identity.
 
-####Result
+#### Result
 ▪️Quality and original project.
 ▪️Getting new visitors for Bohemian Switzerland
 ▪️Helping mom with her startap
