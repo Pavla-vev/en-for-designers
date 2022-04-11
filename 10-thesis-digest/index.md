@@ -32,6 +32,7 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 ## Logo
 
+I created a new logo of the penzion Renesance (Renaissance pension), which will characterize the connection of modern living in a historic house. My primary goal was to create a logotype that would create the idea of rebirth.
 
 ![přední strana vizitky kopie](https://user-images.githubusercontent.com/79570995/162848162-86f76d6a-b8c1-4a05-93b1-0a89c9f8b4b0.jpg)
 
