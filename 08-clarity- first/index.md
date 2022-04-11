@@ -40,3 +40,7 @@ The project is still ongoing. It is in the phase of complete reconstruction of t
 ## Warm-up
 #### Problem
 Currently the project does not exist, due to Covid-19, suspended reconstruction. All visuals and communication must be done
+
+#### Action
+Search for similar local and foreign companies.
+Creating a new visual and communication identity.
