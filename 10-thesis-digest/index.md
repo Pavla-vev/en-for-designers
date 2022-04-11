@@ -50,8 +50,9 @@ The combination of serif and sans-serif fonts in the logo carries the connection
 
 
 ### Visual Identity
+Pointing out that the house has a history, but is reborn with a new mission.
 
-
+Connection of architecture with nature. Elements include plans of the house itself associated with ferns and blueberries that occur in the area.
 
 
 ![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162849367-f1c83d31-74a0-48d9-ba49-3dc78bf0c323.jpg)![webové stranky kopie](https://user-images.githubusercontent.com/79570995/162849776-f4d5c354-bd88-4503-9787-bc6bb645288c.jpg)
