@@ -37,6 +37,8 @@ It symbolizes tenderness, peace,loyalty, trust,devotion and tradition
 
 ## Elements of visual identity
 
+Connection of architecture with nature. Elements include plans of the house itself associated with ferns and blueberries that occur in the area.
+
 ![Vizuální identita vzor](https://user-images.githubusercontent.com/79570995/162845557-a9979fa9-4191-410a-9c7d-8d96903be8f9.jpg)
 
 ## Slogan
