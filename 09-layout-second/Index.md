@@ -13,6 +13,6 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 ## Slogan
 
 ## Prints
-![Prints for using.](koplet vizual print .jpg)
+![Image.](koplet vizual print .jpg)
 
 ## Incrustation
