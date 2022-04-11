@@ -36,4 +36,5 @@ Thanks to the new project, I have the opportunity to work with an architect who 
 #### Findings (highlight outcome of research): 
 I will create a new and original visual and marketing communication. I will help save the dilapidated historical monument.
 #### Conclusions (significance/success of study to theory/practical/society): 
+The project is still ongoing. It is in the phase of complete reconstruction of the building. The success would be to help the mother with her start-up and create a functioning business
 ## Warm-up
