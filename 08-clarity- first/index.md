@@ -28,7 +28,9 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 ## Key points
 
 #### Background/importance of topic: 
+The new project currently has no logo and visual identity. It is currently under reconstruction. 
 #### Purpose/hypothesis (thesis or statement of problem): 
+I want to create a different accommodation facility for this location, which would attract new clients to the territory of Bohemian Switzerland.
 #### Research — design/methodology/approach including procedures/data/observations: 
 #### Findings (highlight outcome of research): 
 #### Conclusions (significance/success of study to theory/practical/society): 
