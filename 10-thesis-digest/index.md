@@ -49,4 +49,7 @@ The combination of serif and sans-serif fonts in the logo carries the connection
 ![razitko znaku](https://user-images.githubusercontent.com/79570995/162849081-15007353-1d7e-4aba-9aeb-50424115b676.jpg)
 
 
+### Visual Identity
+
+![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162849367-f1c83d31-74a0-48d9-ba49-3dc78bf0c323.jpg)
 
