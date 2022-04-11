@@ -8,7 +8,9 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 ## Inspiration
 
-## Logotype
+## Logo
+![přední strana vizitky kopie](https://user-images.githubusercontent.com/79570995/162841480-cf6d25b4-84b2-482e-8489-931fb87554bb.jpg)
+
 
 ## Slogan
 
