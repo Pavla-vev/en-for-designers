@@ -1,4 +1,4 @@
-# logo visual identity and marketing communication to the guast-house🏠
+# Logo visual identity and marketing communication to the guast-house🏠
 
 ## Abstract
 ### REBIRTH/RENESANCE - SOMETHING OLD BECOMES SOMETHING NEW
