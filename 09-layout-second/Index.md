@@ -7,7 +7,9 @@
 analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
 ## Presentation
-[barvy.pdf](https://github.com/Pavla-vev/en-for-designers/files/8468098/barvy.pdf)
+
+![barvy](https://user-images.githubusercontent.com/79570995/162842679-a858fc29-fcf6-4a20-a832-ceb70c3dc711.jpg)
+
 
 
 ## Logo
