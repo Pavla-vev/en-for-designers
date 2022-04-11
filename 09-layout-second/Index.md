@@ -1,6 +1,9 @@
 # logo visual identity and marketing communication to the guast-house🏠
 
 ## Abstract
+### REBIRTH/RENESANCE - SOMETHING OLD BECOMES SOMETHING NEW
+A reference to the long history of the hotel and at the same time points to the modern concept of hotel equipment, which still retains the unified style of preserved older furniture and modernity.The inspiration that helped the logo symbol was the entrance portal.
+Communication in a combination of serif and sans serif (history with modern - we do not cut history directly, but we take it as a renewal and a new start.Pointing out that the house has a history, but is reborn with a new mission.Visual identity will be based on cartoon plans (house floor plans - circles, lines, squares, ..)
 
 ## Keywords
 
