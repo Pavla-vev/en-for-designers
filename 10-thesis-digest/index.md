@@ -51,5 +51,9 @@ The combination of serif and sans-serif fonts in the logo carries the connection
 
 ### Visual Identity
 
-![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162849367-f1c83d31-74a0-48d9-ba49-3dc78bf0c323.jpg)
+
+
+
+![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162849367-f1c83d31-74a0-48d9-ba49-3dc78bf0c323.jpg)![webové stranky kopie](https://user-images.githubusercontent.com/79570995/162849776-f4d5c354-bd88-4503-9787-bc6bb645288c.jpg)
+
 
