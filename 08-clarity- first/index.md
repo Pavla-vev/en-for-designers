@@ -27,9 +27,9 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 ## Key points
 
-# Background/importance of topic: 
-# Purpose/hypothesis (thesis or statement of problem): 
-# Research — design/methodology/approach including procedures/data/observations: 
-# Findings (highlight outcome of research): 
-# Conclusions (significance/success of study to theory/practical/society): 
+#### Background/importance of topic: 
+#### Purpose/hypothesis (thesis or statement of problem): 
+#### Research — design/methodology/approach including procedures/data/observations: 
+#### Findings (highlight outcome of research): 
+#### Conclusions (significance/success of study to theory/practical/society): 
 ## Warm-up
