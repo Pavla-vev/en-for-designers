@@ -38,6 +38,9 @@ The combination of serif and sans-serif fonts in the logo carries the connection
 
 ![přední strana vizitky kopie](https://user-images.githubusercontent.com/79570995/162848162-86f76d6a-b8c1-4a05-93b1-0a89c9f8b4b0.jpg)
 
+### Symbol
+
+![razitko znaku](https://user-images.githubusercontent.com/79570995/162849081-15007353-1d7e-4aba-9aeb-50424115b676.jpg)
 
 
 
