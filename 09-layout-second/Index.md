@@ -16,16 +16,16 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 
 ## Symbol
 
-➡️ Inspiration from the entrance
+1.  Inspiration from the entrance
 door portal
-➡️ Combination of serif and
+2. Combination of serif and
 sans serif font.
 (combined history and modernity)
-➡️ Contains the initial
+3. Contains the initial
 names pension Renaissance
-➡️ Same number of letters R (4x)
+4. Same number of letters R (4x)
 same number of family members (4x)
-➡️color (blue)💙
+5. color (blue)💙
 It symbolizes tenderness, peace,loyalty, trust,devotion and tradition
 
 ![vyznam znaku](https://user-images.githubusercontent.com/79570995/162843668-749467b7-d124-4f90-9a80-f12dd1b6c167.jpg)
