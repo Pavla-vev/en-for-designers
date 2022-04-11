@@ -18,5 +18,10 @@ Word count:
 
 analysis, logo, communication, guest-house, Chřibská town, graphic design, identity, tourist, logotype, marketing, strategy, social media, typography, visualization
 
+## References
+1.	METZ, Reinhold, GRUNER, Hermann, KESSLER Thomas. Restaurace a host – Základní odborné vědomosti restaurace,hotel,kuchyně. Praha: SOBOTÁLES, 2008.
+2.	KOTLER, Philip a KELLER, Kevin Lane. Marketing managemen. [4.vyd.]. Přeložil JUPPA, Tomáš, přeložil MACHEK, Martin. Praha: Grada, 2013. ISBN 978-80-247-4150-5. 
+3.	LOSEKOOT, Michelle a VYHNÁNKOVÁ, Eliška. Jak na sítě: ovládněte čtyři principy úspěchu na sociálních sítích. V Brně: Jan Melvil Publishing, 2019. Žádná velká věda. ISBN 978-80-7555-084-2. 
+
 
 
