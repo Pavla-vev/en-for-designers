@@ -13,6 +13,10 @@ analysis, logo, communication, guest-house, Chřibská town, graphic design, ide
 ## Slogan
 
 ## Prints
-![Image.](koplet vizual print .jpg)
+![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162840988-a11b8dca-f009-45bf-a6ab-2bf2f03b95e6.jpg)
 
-## Incrustation
+
+
+
+## Incrustation!
+
