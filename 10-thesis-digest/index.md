@@ -54,7 +54,7 @@ Pointing out that the house has a history, but is reborn with a new mission.
 
 Connection of architecture with nature. Elements include plans of the house itself associated with ferns and blueberries that occur in the area.
 
-
+![Polstare chribska](https://user-images.githubusercontent.com/79570995/162850201-234afea1-0e27-4336-859d-d89f8e764356.jpg)
 ![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162849367-f1c83d31-74a0-48d9-ba49-3dc78bf0c323.jpg)![webové stranky kopie](https://user-images.githubusercontent.com/79570995/162849776-f4d5c354-bd88-4503-9787-bc6bb645288c.jpg)
 
 
