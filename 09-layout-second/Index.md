@@ -45,8 +45,8 @@ Connection of architecture with nature. Elements include plans of the house itse
 
 The principle of communication will be about mental and physical regeneration, which will be provided by our accommodation.
 
-Vaše cesta za obnovou - Your way to recovery.
-První krok k Vaší obnově - The first step to your recovery.
+1.Vaše cesta za obnovou - Your way to recovery. (Primary)
+1.První krok k Vaší obnově - The first step to your recovery.
 
 ## Prints
 ![koplet vizual print ](https://user-images.githubusercontent.com/79570995/162840988-a11b8dca-f009-45bf-a6ab-2bf2f03b95e6.jpg)
