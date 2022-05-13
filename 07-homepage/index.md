@@ -20,4 +20,4 @@
 - [Clarity first](https://github.com/Pavla-vev/en-for-designers/tree/main/08-clarity-%20first)
 - [Layout second](https://github.com/Pavla-vev/en-for-designers/tree/main/09-layout-second)
 - [Thesis digest](https://github.com/Pavla-vev/en-for-designers/tree/main/10-thesis-digest)
-- 
+- [Presentation](https://github.com/Pavla-vev/en-for-designers/blob/main/Presentation/index.md)
