@@ -7,6 +7,7 @@ I liked the way the lessons focused on self-presentation. Think more about your 
 I had no problem. The only problem I had with nervousness before the presentation, the stress was unnecessary, there is nothing to fear.
 
 ## 3. What were the top 3 things you learned this year?
+1) That I should not be afraid to speak English, even if there is not everything grammatically correct. 2) Be able to convince the client why she should be ok with my work for him. 3) Working in programs,what I don't know so much and learned more about it.
 
 ## 4. What was the most memorable activity/assignment from this year?
 
