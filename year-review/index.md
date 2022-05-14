@@ -1,8 +1,10 @@
 # Review
 
 ## 1. What did you like most about this subject?
+I liked the way the lessons focused on self-presentation. Think more about your work and talk about it in front of people.
 
 ## 2. What did you like least about this subject?
+I had no problem. The only problem I had with nervousness before the presentation, the stress was unnecessary, there is nothing to fear.
 
 ## 3. What were the top 3 things you learned this year?
 
