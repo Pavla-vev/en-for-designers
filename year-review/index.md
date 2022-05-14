@@ -10,10 +10,12 @@ I had no problem. The only problem I had with nervousness before the presentatio
 1) That I should not be afraid to speak English, even if there is not everything grammatically correct. 2) Be able to convince the client why she should be ok with my work for him. 3) Working in programs,what I don't know so much and learned more about it.
 
 ## 4. What was the most memorable activity/assignment from this year?
+Probably a more detailed talk about graphic work for the client. Talk about the problems that were there, solutions, and their communication with me.
 
 ## 5. What is something you accomplished this year that you are proud of?
 
 ## 6. What is one thing you learned about yourself this year?
+that I don't have to be afraid to talk to friends when I'm doing a presentation or about private things. They're here for me.
 
 ## 7. What is one thing you would add or change about this class?
 
